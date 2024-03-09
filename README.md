@@ -1,0 +1,1 @@
+# Fijiwaip_Autotest_Diploma_Yandex_Practicum
